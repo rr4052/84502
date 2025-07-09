@@ -21,4 +21,4 @@
 多种播放设备，完美适配
 不论你是在手机、电脑还是平板上观看，我们平台都提供了完美的适配方案。你可以在任何设备上观看日本AV影片，享受最高清、最流畅的播放效果。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/rr4052/84502 ）</span>
